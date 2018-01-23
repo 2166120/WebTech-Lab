@@ -15,3 +15,9 @@ Advocacies:
 1. Human Rights
 2. Gender Equality
 3. Environmental Protection
+
+Members:
+ANGEN, HENDRIX AQUIO
+PANAWAN, CARVILLE DE LOS SANTOS
+SAN JUAN, JAN PAULA SANTOS
+UY, DAVID CALVIN BENIGNO
